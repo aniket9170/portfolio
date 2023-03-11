@@ -1,4 +1,4 @@
-# portfolio
+# Portfolio
 Hi there, 
 This is Aniket soni, Detail-oriented team player with strong organizational skills. Ability to handle multiple projects simultaneously with a high degree of accuracy.
 A hardworking and passionate job seeker with solid organizational skills eager to secure entry-level. 
